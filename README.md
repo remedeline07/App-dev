@@ -10,4 +10,4 @@ The story behind the fight song
 >"When I wrote 'Fight Song,' I was in a particular low point. I needed to remind myself to not give up, that I still believed in myself and that I still had fight left," Platten said. "I didn't intend to write ['Fight Song'], you know, for the world to hear to be honest. I wrote it 'cause I needed it. And I wrote it 'cause I needed that reminder and I needed hope. And maybe there was this tiny place in my heart that I believed this could still happen. And the fact that it did is crazy."
 
 
-https://abcnews.go.com/Entertainment/rachel-platten-explains-real-story-hit-fight-song/story?id=35628664
+https://abcnews.go.com/Entertainment/rachel-platten-explains-real-story-hit-fight-song/story?id=35628664 
